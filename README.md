@@ -10,9 +10,10 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Vinagrete
 
-- Macarrao na Chapa
+- Macarrão na Chapa
 
 - Torta de Abacaxi
 
-  
+- Macarrão na Chapa
 
+- Torta de Morango
