@@ -12,7 +12,6 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Macarrão na Chapa
 
-- Torta de Frango
-
+- Torta de Morango
   
 
