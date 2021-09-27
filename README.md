@@ -10,7 +10,7 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Vinagrete
 
-- Macarrão na Chapa
+- Macarrao na Chapa
 
 - Torta de Frango
 
