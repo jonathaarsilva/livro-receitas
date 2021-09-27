@@ -7,8 +7,12 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 - Pavê
 
 - Bolo de Chocolate
+
 - Vinagrete
+
 - Macarrão na Chapa
+
+- Torta de Frango
 
   
 
